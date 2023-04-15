@@ -1,0 +1,1 @@
+Just participated in a school event where we created our own Halloween landing page with HTML and CSS in just two hours! While it's not my first website, it was great to see my friends and I learn new things and improve our skills. It's amazing what you can achieve with a little bit of knowledge and creativity. Looking forward to applying these new skills to my future projects!
